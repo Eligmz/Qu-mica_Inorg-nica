@@ -1,1 +1,1 @@
-# Qu-mica_Inorg-nica
+# Quimica_Inorganica
